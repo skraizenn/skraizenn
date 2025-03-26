@@ -1,2 +1,2 @@
-[instagram.com/skraizenn](instagram.com/skraizenn)  
-[t.me/skraizenn](t.me/skraizenn)
+[instagram.com/skraizenn](https://instagram.com/skraizenn)  
+[t.me/skraizenn](https://t.me/skraizenn)
